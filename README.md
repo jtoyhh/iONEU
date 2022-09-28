@@ -11,6 +11,7 @@
 
 https://user-images.githubusercontent.com/17774850/188865354-1b993781-757c-4805-9a7c-4dece18bbaed.mp4
 
+https://docs.google.com/presentation/d/198JlnVE2VsrEm-23H4whsuEvupYsrVVl/edit?usp=sharing&ouid=100586170376648458738&rtpof=true&sd=true
 
 ## 🕑일정 
 2022.08.02 ~ 2022.08.22
